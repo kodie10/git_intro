@@ -1,2 +1,1 @@
 Kodie Artmayer
-10
